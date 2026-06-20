@@ -56,4 +56,4 @@ We will only keep your personal information for as long as it is necessary for t
 
 If you have questions or comments about this policy, you may email us at:
 
-**[privacy@feelapp.com](mailto:privacy@feelapp.com)**
+**[privacy@feelapp.com](mailto:tranducminh4125@gmail.com)**
